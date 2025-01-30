@@ -74,7 +74,7 @@ While downloading from third-party sources carries some risks, NetMirror APK v2.
 
 ---
 
-**Download NetMirror APK v2.6 Now**  
+[**Download NetMirror APK v2.6 Now**  ](https://vnshortener.com/2bfnA0Do)
 
 ---  
 
